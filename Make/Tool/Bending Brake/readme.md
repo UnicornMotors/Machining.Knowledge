@@ -1,0 +1,13 @@
+inspire:
+- [How to Manufacture a Sheet Bending Machine or Sheet Metal Bending Machine (step by step)](https://youtu.be/HXBo_7ShxYg)
+- https://youtu.be/Yjb-R6_vVmA
+- https://youtu.be/Mr2IgQHqcFE
+- https://youtu.be/c3xmp0ctgBE
+- https://youtu.be/c3xmp0ctgBE
+- https://youtu.be/eB9ASQBc9V4
+- https://youtu.be/Yjb-R6_vVmA
+- https://youtu.be/1nn7JtvvX9I
+- https://youtu.be/s5hZroF5tdA
+- https://youtu.be/EyFlxb3I6Zg
+- https://youtu.be/OrtSrrPzWKg
+- https://youtu.be/ti9IQsPEH24
