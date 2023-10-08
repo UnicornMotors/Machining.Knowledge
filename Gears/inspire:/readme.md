@@ -1,0 +1,2 @@
+- [Metal turning / how to turn 3Ton Double Helical Gear smarter than others](https://youtu.be/zv0MoDHqueg)
+- [90days Machining Process with 100yrs Old Technology - HH Special Compilation](https://youtu.be/Wm6olzTXslI)
