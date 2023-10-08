@@ -1,0 +1,1 @@
+- [Hydrodynamic Bearings](https://youtu.be/7OY170iaGSA)
