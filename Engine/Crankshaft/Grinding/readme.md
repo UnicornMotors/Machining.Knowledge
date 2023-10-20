@@ -1,0 +1,1 @@
+- [This Cummins Crankshaft Was Almost Scrap Metal...](https://youtu.be/FuVPx9kC2Yk)
