@@ -1,2 +1,3 @@
+- [Everything you need to know about drilling and tapping holes | DIY](https://youtu.be/NV4hh4bJxb4)
 - [Everything You Need to Know About Taps & Dies - Gear Up With Gregg's](https://youtu.be/CWCQ-hlQvdY)
 - [Thread Anatomy- (In less than 5 min!)](https://youtu.be/tkEVwpl2S4Q)
