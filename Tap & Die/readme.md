@@ -3,3 +3,4 @@
 - [Everything You Need to Know About Taps & Dies - Gear Up With Gregg's](https://youtu.be/CWCQ-hlQvdY)
 - [Thread Anatomy- (In less than 5 min!)](https://youtu.be/tkEVwpl2S4Q)
 - [Tapping Tips: How to Select the Right Tap For Your Needs](https://youtu.be/uI_fW0WfY8w)
+- [Adam Savage Stumped by This Mystery Lathe Problem](https://youtu.be/E_KF3n3oo08)
