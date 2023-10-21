@@ -1,3 +1,5 @@
+- [Adam Savage's One Day Builds: Thread Tapping Guide Block!](https://youtu.be/XVEww6Ylw5c)
 - [Everything you need to know about drilling and tapping holes | DIY](https://youtu.be/NV4hh4bJxb4)
 - [Everything You Need to Know About Taps & Dies - Gear Up With Gregg's](https://youtu.be/CWCQ-hlQvdY)
 - [Thread Anatomy- (In less than 5 min!)](https://youtu.be/tkEVwpl2S4Q)
+- [Tapping Tips: How to Select the Right Tap For Your Needs](https://youtu.be/uI_fW0WfY8w)
